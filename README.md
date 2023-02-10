@@ -1,0 +1,2 @@
+# Baslangic-repositorim
+# Baslangic-repositorim
